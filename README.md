@@ -1,6 +1,6 @@
 # -Santoshtitu
-[![YouTube Badge]https://www.youtube.com/channel/UCn22Lh6usbHxNk0c9veJ0Xg
-[![Linkedin Badge]https://www.linkedin.com/feed/?trk=IN-SEM_google-adwords_Jordan-brand-sign-up
+[![YouTube Badge](https://www.youtube.com/channel/UCn22Lh6usbHxNk0c9veJ0Xg)
+[![Linkedin Badge](https://www.linkedin.com/feed/?trk=IN-SEM_google-adwords_Jordan-brand-sign-up)
 
 
 I'm
